@@ -16,5 +16,5 @@ Cade Sutter
 My favorite game to play is "___".
 
 Gavin Russell
-Favorite game is easily The Legend of Zelda: Link to the Past. Who doesn't love Zelda?
+My favorite game is easily The Legend of Zelda: A Link to the Past. Who doesn't love the Zelda series?
 
