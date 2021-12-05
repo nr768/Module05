@@ -12,9 +12,6 @@ For this project the main license need is a copright license. This will ensure t
 Kristiana Kirk
 My favorite game to play is Alto!!!!
 
-Cade Sutter
-My favorite game to play is "___".
-
 Gavin Russell
 Favorite game is easily The Legend of Zelda: Link to the Past. Who doesnt love Zelda?
 
