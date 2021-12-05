@@ -12,6 +12,8 @@ For this project the main license need is a copright license. This will ensure t
 Kristiana Kirk
 My favorite game to play is Alto!!!!
 
-Tyler Zimmerman
+Cade Sutter
 My favorite game to play is "___".
+
+
 
