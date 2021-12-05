@@ -15,5 +15,6 @@ My favorite game to play is Alto!!!!
 Cade Sutter
 My favorite game to play is "___".
 
-
+Gavin Russell
+Faavorite Game is easily Legend of Zelda: Link to the Past. Who doesnt love Zelda?
 
