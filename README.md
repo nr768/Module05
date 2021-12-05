@@ -13,5 +13,5 @@ Kristiana Kirk
 My favorite game to play is Alto!!!!
 
 Gavin Russell
-Favorite game is easily The Legend of Zelda: Link to the Past. Who doesnt love Zelda?
+My favorite game is easily The Legend of Zelda: A Link to the Past. Who doesn't love the Zelda series?
 
